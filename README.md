@@ -1,1 +1,1 @@
-# The-sparks-foundation-Grip-GRIP-Data-Science-Business-Analytics-November-2021
+# The-sparks-foundation-GRIP-Data-Science-Business-Analytics-November-2021
